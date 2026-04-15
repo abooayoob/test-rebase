@@ -1,1 +1,1 @@
-commit 1 - Ali
+noe tekst, samma hva
